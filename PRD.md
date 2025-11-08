@@ -88,7 +88,7 @@
 
 ## 👨‍💻 Tim Pengembang
 
-*   [Nama Anda/Tim] - Product Owner & Lead Developer
+*   rifqy niam fadhil & muhammad ariyanto - Product Owner & Lead Developer
 
 ## 📞 Kontak
 
